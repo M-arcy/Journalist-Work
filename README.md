@@ -1,1 +1,1 @@
-#For many years I was first a print, then a broadcast journalist.  I worked for Imperial Valley Press,  eupnews.com and for CMU Public Radio, as well as many freelance writing and photography assignments.  In here, you'll see some of my work. 
+# For many years I was first a print, then a broadcast journalist.  I worked for Imperial Valley Press,  eupnews.com and for CMU Public Radio, as well as many freelance writing and photography assignments.  In here, you'll see some of my work. 
